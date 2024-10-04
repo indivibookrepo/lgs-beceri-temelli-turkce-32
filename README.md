@@ -1,0 +1,1 @@
+# lgs-beceri-temelli-turkce-32
